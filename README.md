@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @patria160
-- 👀 I’m interested in sleeping
+- 👋 Hi, I’m Peje
+- 👀 I’m interested in Adventure
 - 🌱 I’m currently learning how to sleep well
 - 💞️ I’m looking to collaborate on sleep
 - 📫 How to reach me on dream
